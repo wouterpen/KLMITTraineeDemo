@@ -3,3 +3,5 @@
 # Chuck Norris counted to infinity. Twice.
 
 # When a zombie apocalypse starts, Chuck Norris doesn't try to survive. The zombies do
+
+* I don't like Chuck Norris.
