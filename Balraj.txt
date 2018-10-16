@@ -1,0 +1,5 @@
+# Chuck Norris can kill two stones with one bird.
+
+# Chuck Norris counted to infinity. Twice.
+
+# When a zombie apocalypse starts, Chuck Norris doesn't try to survive. The zombies do
